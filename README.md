@@ -1,3 +1,3 @@
 # gender
 
-it/its kitten thing
+outside (someday) woman, inside  idfk
